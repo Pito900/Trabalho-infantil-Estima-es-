@@ -1,0 +1,1 @@
+Neste projeto eu estou desenvolvendo algumas estimações sobre as causas do trabalho infantil no brasil. Em breve irei postar todo um conteudo relacionado sobre o tema e a minha pesquisa. 
